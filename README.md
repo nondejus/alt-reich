@@ -1,4 +1,4 @@
-# alt-nazi
+# alt-reich
 ![](https://github.com/nondejus/alt-nazi/blob/main/ArtBoard%20Image%20(53).jpg)
 https://en.wikipedia.org/wiki/Neues_Volk
 ![](https://github.com/nondejus/alt-nazi/blob/main/ArtBoard%20Image%20(325).jpg)
